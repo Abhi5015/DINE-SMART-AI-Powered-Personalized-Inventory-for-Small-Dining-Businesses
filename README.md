@@ -1,0 +1,1 @@
+# DINE-SMART-AI-Powered-Personalized-Inventory-for-Small-Dining-Businesses
